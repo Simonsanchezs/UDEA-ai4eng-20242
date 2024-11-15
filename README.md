@@ -6,4 +6,5 @@
 
 3.EMANUEL VASQUEZ YEPES, CC:1035970318, INGENIERÍA DE SISTEMAS
 
-Link video: https://youtu.be/vNGFNdDV7ig
+Link video: https://youtu.be/vNGFNdDV7i
+Link video entrega final: https://youtu.be/Z9Mh37fxpew
